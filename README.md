@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Yesra Fatima
-- 👀 I’m interested in .learning new things..
+- 👀 I’m interested in learning new things..
 - 🌱 I’m currently learning C and Python...
 - 
 - 📫 How to reach me .www.linkedin.com/in/yesra-fatima-a71975242..
